@@ -8,12 +8,12 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 ---
 
 **Warm Up Mobility – (2 rounds)**
-* Kneeling to Lateral Half Kneeling - 5x
+* [Kneeling to Lateral Half Kneeling](https://www.youtube.com/watch?v=63YcYPaYiq0) - 5x
 * Deep Squat – 10x
 * Tripod Transition – 2x – each side
 
 **Skill – (5 Rounds)**
-Squat – 5x - 60% of Bodyweight 
+* Squat – 5x - 60% of Bodyweight 
 
 **Combo – (3 Rounds)**
 * Balancing Walk – 30ft – 6 inch surface 
