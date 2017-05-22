@@ -1,13 +1,13 @@
 # Beginner Mods
 
-Organized by newest first. Date format: dd/mm/yyyy
+Organized by newest first.
 
 
 ## 2015
 
 ### March 2015
 
-#### 04/03/2015 #1
+#### 04 March 2015 #1
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
 
@@ -24,7 +24,7 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 * [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 5x – 3ft
 * [Walking Split Squat](https://www.youtube.com/watch?v=3zy0Yx8oZoM) – 12x
 
-####04/03/2015 #2
+#### 04 March 2015 #2
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
 
@@ -46,7 +46,7 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 
 ### Feb 2015
 
-#### 27/02/2015 #1
+#### 27 Feb 2015 #1
 
 From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb15&e=d5632fc003
 
@@ -63,7 +63,7 @@ From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb1
 * [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 10x – 3ft
 * [Deep Squat](https://www.youtube.com/watch?v=ZlgMxdibUI0) – 10x
 
-#### 27/02/2015 #2
+#### 27 Feb 2015 #2
 
 From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb15&e=d5632fc003
 
