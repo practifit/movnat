@@ -49,7 +49,7 @@ This is a collection of MovNat resources from various sources in one place for e
 * Advanced
   * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 1](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-1)
   * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 2](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-2)
-  * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 3](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-30
+  * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 3](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-30)
   * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 4](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-4)
   * [Strength & Conditioning: Erwan Le Corre - Advanced Combo Workout 5](https://breakingmuscle.com/train/strength-conditioning-erwan-le-corre-advanced-combo-workout-5)
 
