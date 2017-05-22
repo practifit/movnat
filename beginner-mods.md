@@ -1,4 +1,4 @@
-# Beginner Mods (organized by date published - newest first)
+# Beginner Mods - organized (newest first) by date (dd/mm/yyyy) published
 
 
 ## 04/03/2015
