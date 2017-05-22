@@ -6,6 +6,7 @@
 From: https://breakingmuscle.com/train/strength-conditioning-a-4-week-movnat-primer-with-erwan-le-corre-week-1
 
 > Week one is all about "context-free" locomotive drills, i.e. unloaded movements. Such movements do not need to adapt to complex environmental demands and can be performed on any flat surface, indoors or outdoors, anywhere.
+
 > You may follow the specific number of reps indicated, or you may solely focus on sensations instead and practice as long as the movement feels beneficial to you.
 
 
