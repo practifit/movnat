@@ -1,11 +1,15 @@
-# Beginner Mods - organized (newest first) by date (dd/mm/yyyy) published
+# Beginner Mods
+
+Organized by newest first. Date format: dd/mm/yyyy
 
 
-## 04/03/2015
+## 2015
+
+### March 2015
+
+#### 04/03/2015 #1
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
-
----
 
 **Warm Up Mobility – (2 rounds)**
 * [Kneeling to Lateral Half Kneeling](https://www.youtube.com/watch?v=63YcYPaYiq0) - 5x
@@ -20,7 +24,9 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 * [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 5x – 3ft
 * [Walking Split Squat](https://www.youtube.com/watch?v=3zy0Yx8oZoM) – 12x
 
----
+####04/03/2015 #2
+
+From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
 
 **Warm Up Mobility – (3 rounds)**
 * [Stepping Up](https://www.youtube.com/watch?v=fbUlKDY9_aA) - 6x
@@ -37,14 +43,12 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 * [Lapping](https://www.youtube.com/watch?v=MpXm6_ypAPY) – 4x – 50lbs
 * [Front Swing Throw](https://www.youtube.com/watch?v=J9S7gC0vGsM) - 10x – 20lbs
 
----
 
+### Feb 2015
 
-## 27/02/2015
+#### 27/02/2015 #1
 
 From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb15&e=d5632fc003
-
----
 
 **Warm Up Mobility – (2 rounds)**
 * [Tall Half-Kneeling to Kneeling](https://www.youtube.com/watch?v=vwWlNsCCQQw) - 5x
@@ -59,7 +63,9 @@ From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb1
 * [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 10x – 3ft
 * [Deep Squat](https://www.youtube.com/watch?v=ZlgMxdibUI0) – 10x
 
----
+#### 27/02/2015 #2
+
+From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb15&e=d5632fc003
 
 **Warm Up Mobility – (2 rounds)**
 * [Knee Hand Crawl](https://www.youtube.com/watch?v=PIn1J5TCq4Q) – 20ft
@@ -74,6 +80,5 @@ From: http://us1.campaign-archive2.com/?u=fc57a2d24ec9651958c48dafb&id=83b3badb1
 * [Lateral Side Jump](https://www.youtube.com/watch?v=98AXMtapt3A) - x5 left and right
 * [Side Swing](https://www.youtube.com/watch?v=nn_1gFSS9Ec) – 10x – hand releases 
 
----
 
 
