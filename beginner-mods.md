@@ -5,9 +5,9 @@ Organized by newest first.
 
 ## 2015
 
-### March 2015
+### Mar 2015
 
-#### 04 March 2015 #1
+#### 04 Mar 2015 #1
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
 
@@ -24,7 +24,7 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 * [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 5x – 3ft
 * [Walking Split Squat](https://www.youtube.com/watch?v=3zy0Yx8oZoM) – 12x
 
-#### 04 March 2015 #2
+#### 04 Mar 2015 #2
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b8&e=d5632fc003
 
