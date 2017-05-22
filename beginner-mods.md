@@ -7,36 +7,35 @@ From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1613da19b
 
 ---
 
-Warm Up Mobility – (2 rounds)
-Kneeling to Lateral Half Kneeling - 5x
-Deep Squat – 10x
-Tripod Transition – 2x – each side
+**Warm Up Mobility – (2 rounds)**
+* Kneeling to Lateral Half Kneeling - 5x
+* Deep Squat – 10x
+* Tripod Transition – 2x – each side
 
-Skill 
-5 Rounds
+**Skill – (5 Rounds)**
 Squat – 5x - 60% of Bodyweight 
 
-Combo – (3 Rounds)
-Balancing Walk – 30ft – 6 inch surface 
-Leg Swing Jump – 5x – 3ft
-Walking Split Squat – 12x
+**Combo – (3 Rounds)**
+* Balancing Walk – 30ft – 6 inch surface 
+* Leg Swing Jump – 5x – 3ft
+* Walking Split Squat – 12x
 
 ---
 
-Warm Up Mobility – (3 rounds)
-Stepping Up - 6x
-Side Swing Hang Hold- 6x – hand releases both sides
-Depth Jump – 6x
+**Warm Up Mobility – (3 rounds)**
+* Stepping Up - 6x
+* Side Swing Hang Hold- 6x – hand releases both sides
+* Depth Jump – 6x
 
-Skill – (5 rounds)
-Deadlift – 5x – 85% bodyweight
+**Skill – (5 rounds)**
+* Deadlift – 5x – 85% bodyweight
 
-Combo – (4 rounds)
-Stepping Over – 10x
-Balancing Walk – 30ft – carry 10lbs
-Pivot Reverse – 4x – carry 10lbs
-Lapping – 4x – 50lbs
-Front Swing Throw - 10x – 20lbs
+**Combo – (4 rounds)**
+* Stepping Over – 10x
+* Balancing Walk – 30ft – carry 10lbs
+* Pivot Reverse – 4x – carry 10lbs
+* Lapping – 4x – 50lbs
+* Front Swing Throw - 10x – 20lbs
 
 ---
 
