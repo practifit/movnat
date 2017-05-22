@@ -3,7 +3,7 @@
 This is a collection of MovNat resources from various sources in one place for easy reference. Feel free to report issues and contribute.
 
 
-# Articles
+## Articles
 
 * [Beyond GPP: The New Model Of Performance Training](https://breakingmuscle.com/learn/beyond-gpp-the-new-model-of-performance-training)
 * [Beyond GPP: Find Your Movement Flow](https://breakingmuscle.com/learn/beyond-gpp-find-your-movement-flow)
@@ -16,7 +16,7 @@ This is a collection of MovNat resources from various sources in one place for e
   * https://web.archive.org/web/20150323004317/http://www.movnat.com/60-60/#sthash.9uPfUpw6.dpbs
   * http://www.teamactivist.org/breakingmuscle/6060MovNatChallenge
 
-# Article Groups
+## Article Groups
 
 * [MovNat Journal](https://www.movnat.com/our-journal/)
 * [All Articles By Vic Verdier on Breaking Muscle](https://breakingmuscle.com/coaches/vic-verdier)
@@ -64,7 +64,7 @@ This is a collection of MovNat resources from various sources in one place for e
 * [MovNat video on Flow](https://www.youtube.com/user/flow/search?query=movnat)
 
 
-# Communities
+## Communities
 
 * https://www.reddit.com/r/MovNat/
 
