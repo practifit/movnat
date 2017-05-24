@@ -3,7 +3,7 @@
 Organized by newest first.
 
 ## 2016
-* [12 Sep 2016](http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=857f009d4d&e=d5632fc003) Emphasize THE Basics (Walking and Sitting)
+* [12 Sep 2016](http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=857f009d4d&e=d5632fc003) Emphasize The Basics (Walking and Sitting)
 * [15 Aug 2016](http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=b147766472&e=d5632fc003) Breaking The Jump (Book Excerpt)
 * [26 Jul 2016](http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=563fa880ad&e=d5632fc003) Shoulder Crawl
 * [05 Jul 2016](http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=35094fd4e2&e=d5632fc003) Pivot Reverse
