@@ -7,6 +7,43 @@ Organized by newest first.
 
 ### Apr 2015
 
+#### 16 Apr 2015 #1
+
+From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1a7fb6b610&e=d5632fc003)
+
+**Warm Up Mobility – (3 rounds)**
+* [Walking Split Squat](https://www.youtube.com/watch?v=3zy0Yx8oZoM) – 10x
+* [Deep Knee Bend](https://www.youtube.com/watch?v=W4LuS9rK0gU) – 10x
+* [Foot Hand Crawl](https://www.youtube.com/watch?v=7GfVNCke8gk) – 15ft
+
+**Skill**
+* [Front Swing Throw](https://www.youtube.com/watch?v=J9S7gC0vGsM) – 15x – 10% of bodyweight for max distance
+
+**Combo – (4 Rounds)**
+* [Foot Hand Crawl](https://www.youtube.com/watch?v=7GfVNCke8gk) – 20ft
+* [Leg Swing Jump](https://www.youtube.com/watch?v=mvtjTEAbQJw) – 10x – 3ft
+* [Deep Squat](https://www.youtube.com/watch?v=ZlgMxdibUI0) – 10x
+* [Push Press](https://www.youtube.com/watch?v=RusuPT_yZKU) – 5x – 25lbs
+
+
+#### 16 Apr 2015 #2
+
+From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=1a7fb6b610&e=d5632fc003)
+
+**Warm Up Mobility – (3 rounds)**
+* [Deep Knee Bend](https://www.youtube.com/watch?v=W4LuS9rK0gU) – 5x
+* [Shoulder Crawl](https://www.youtube.com/watch?v=Am2pCsOeqAE) – 10ft
+* [Hip Thrust Crawl](https://www.youtube.com/watch?v=xvYxuGmvlo0) – 15ft
+
+**Skill**
+* [Forward Roll](https://www.youtube.com/watch?v=cTiNRwT44Uc) [Lying](https://www.youtube.com/watch?v=IG_7uSEEvBc) – 15x – left and right sides
+
+**Combo – (4 rounds)**
+* [Balancing Walk](https://www.youtube.com/watch?v=mS7eNSEZrpc) – 12ft 
+* [Pivot Reverse](https://www.youtube.com/watch?v=mNDiyo9_G4Q) – 2x left and right
+* [Rotational Throw](https://www.youtube.com/watch?v=ra7BjSceJ08) – 10x – 10lbs 
+* [Chest Carry](https://www.youtube.com/watch?v=SdgpeyZyHxo) – 40ft – 20lbs
+
 #### 09 Apr 2015 #1
 
 From: http://us1.campaign-archive1.com/?u=fc57a2d24ec9651958c48dafb&id=46cb797497&e=d5632fc003
